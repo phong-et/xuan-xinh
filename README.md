@@ -6,9 +6,9 @@ Xuân trong mắt trong
 Xuân thắm môi hồng
 Hôn lên má xinh
 Xuân tưới nắng vàng
-In lên tóc mây
+Lên mái tóc xanh
 Xuân tưới nắng vàng
-Xuân tươi sắc hoa
+Thêm tươi sắc hoa
 
 Kia làn mây trắng tinh
 Kia bờ môi nhỏ xinh
