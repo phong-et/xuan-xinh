@@ -4,7 +4,9 @@ Xuân !
 Xuân trên phố phường
 Xuân trong mắt trong
 Xuân thắm môi hồng
-Xuân thơm má xinh
+Hôn lên má xinh
+Xuân tưới nắng vàng
+In lên tóc mây
 Xuân tưới nắng vàng
 Xuân tươi sắc hoa
 
