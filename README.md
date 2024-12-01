@@ -17,6 +17,11 @@ Xuân về trong mắt tôi
 
 Hoa vàng khoe sắc thắm
 Môi hồng khoe tuổi xuân
+Thu vào trong mắt tôi
+Ôi mùa xuân rất xinh
+// or
+Hoa vàng khoe sắc thắm
+Môi hồng khoe tuổi xuân
 Xuân tràn trên tóc xanh
 Thu vể trong mắt anh
 // or
